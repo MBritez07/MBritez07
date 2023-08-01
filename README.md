@@ -33,4 +33,12 @@ Por lo que las principales tecnoloías que manejo son:
 ➡️  CSS.  
 ➡️  Tambien incluyo conocimiento en herramientas como Figma, Trello, para el armado de proyectos utilizando métodos agiles
 
+
 ## **No dudes en contactarme¡**
+
+Juntos podemos realizar un gran proyecto que cambie la vida a miles de personas 🤩 . 
+
+
+**➡️  Te dejo el link de mi Perfil en Linkedin: www.linkedin.com/in/MicaelaBritez-FullStack-Developer ⬅️**   
+**➡️                       Email: britezmicaela2@gmail.com                        ⬅️**
+
