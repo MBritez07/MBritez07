@@ -1,6 +1,6 @@
 
 
-## Hola! Mi nombre es Micaela Britez 💁🏻‍♀️
+## Hola! Mi nombre es Micaela Britez 😃
 
    **Es para mi un placer conocerte**
 
